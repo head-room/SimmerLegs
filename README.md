@@ -1,5 +1,1 @@
-Simmering until im full
-
-Have been chilling since birth
-
-HMU on AIM
+Imuh simmer mammuh
